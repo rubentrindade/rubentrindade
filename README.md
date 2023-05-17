@@ -1,4 +1,4 @@
-### Olá! Eu sou o Rúben Trindade! 👋
+### Olá! Eu sou o Rúben Trindade!👋 Seja Bem vindo!😁
 
 
 
